@@ -2,7 +2,7 @@
 
 i'm just a beginner °-°
 
-- ⚡ Fun fact: i'm like a fps game
+- ⚡ Fun fact: my gf is yeji and irene.
 
 
 
